@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **parthkaul.work@gmail.com**
 
-- 🐱 Ps. **I love cats **
+- 🐱 Ps. **I love cats**
 <br />
 
 
